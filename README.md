@@ -14,6 +14,8 @@
 
 ~ Portal 1 & 2
 
+~ Disco Elysium
+
 ~ Persona 5 Royal
 
 ~ Mirror's Edge Catalyst
